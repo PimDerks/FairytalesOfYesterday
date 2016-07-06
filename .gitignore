@@ -1,0 +1,6 @@
+.DS_Store
+.cache
+.hg
+.svn
+.CVS
+.idea
