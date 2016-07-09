@@ -24,3 +24,10 @@ Brian: Difficult area really. I mean it's possible. We did do tracks without Fre
 Richard: I must add my plea to at least have the tracks that were recorded released. Maybe as an EP.
 
 Brian: Well I'd love to have them out there. They have to be definitely out there. They're the last things that Freddie did, and they're very precious. It needs careful handling.
+
+-----
+
+23-05-1993, The Washington Times
+
+"Nobody's had any bright ideas yet," Queen's drummer Roger Taylor, 43, says in a rare interview.
+"We're all still friends, we're obviously in business together, we still sell records. Whether we'll actually play together again apart from in the studio, I really couldn't say."
